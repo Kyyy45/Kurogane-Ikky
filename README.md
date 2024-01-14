@@ -1,0 +1,2 @@
+# Kurogane-Ikky
+pemula
